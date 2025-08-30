@@ -4,7 +4,7 @@
 
 
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀  ⠀⠀<img width="499" height="499" alt="tumblr_1844013346d8ab1444266d40316ec2db_97d6222d_400" src="https://github.com/user-attachments/assets/f3f7ef19-3917-4b89-ba48-a73a43f055a0" />
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀<img width="499" height="499" alt="tumblr_1844013346d8ab1444266d40316ec2db_97d6222d_400" src="https://github.com/user-attachments/assets/f3f7ef19-3917-4b89-ba48-a73a43f055a0" />
 
 
 
@@ -12,4 +12,9 @@
 
 
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀ ![](https://komarev.com/ghpvc/?username=your-github-username&color=dfecd3)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ![](https://komarev.com/ghpvc/?username=your-github-username&color=dfecd3)
+
+⠀⠀
+
+<img width="1280" height="1280" alt="tumblr_c36646b1359f8aa882a49a25f5a12d6b_beacefb6_640" src="https://github.com/user-attachments/assets/514e5013-db07-44b5-9239-90ab2a9fda03" />
+
