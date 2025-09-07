@@ -2,32 +2,8 @@
 
 ⠀⠀⠀
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ◠⠀⠀⠀⠀⠀![](https://komarev.com/ghpvc/?username=your-github-username&color=bfbfbf)
-
-⠀⠀⠀
-
-⠀⠀⠀⠀
-
-⠀⠀⠀⠀⠀⠀
-
-
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀  ![bugbo-gangnam-style](https://github.com/user-attachments/assets/bf725a8e-3575-42de-9c7e-c662fe1f9072)
-
-
-⠀⠀⠀⠀⠀
-
-
-
-
-⠀⠀⠀
-
-
-
-⠀⠀⠀⠀
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀ 
-
-⠀⠀
-⠀⠀⠀⠀
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ◠⠀⠀⠀⠀⠀![](https://komarev.com/ghpvc/?username=your-github-username&color=ba5665)
+⠀
 
 
 
@@ -35,7 +11,6 @@
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ 
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
