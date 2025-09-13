@@ -1,12 +1,16 @@
-<img width="1000" height="1000" alt="tumblr_e51b5d8557bee647aa75b524eff4b883_7af713fe_500" src="https://github.com/user-attachments/assets/447d72ce-d318-4c33-b86b-eb194c28e7a7" />
+<img width="1000" height="1000" alt="tumblr_7c7de2bb88b2ed5a046d29613ee635da_ffb99d0b_400" src="https://github.com/user-attachments/assets/186e2d83-1cda-403a-9483-6312f71ba1e6" />
+
+ᅠ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
 
-⠀⠀⠀⠀⠀⠀⠀<img width="800" height="800" alt="tumblr_5732a504e2e6fed4f9ed181716082dee_4f79db30_500" src="https://github.com/user-attachments/assets/05a1407c-fb20-49a1-af7c-2c89c311070f" />
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ᅠ⠀⠀ᅠ⠀⠀ᅠᅠ⠀ᅠᅠ⠀⠀ᅠ⠀ᅠ⠀ᅠᅠ⠀ᅠᅠ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[![Typing SVG](https://readme-typing-svg.demolab.com?font=Libertinus+Serif+Display&pause=1000&color=EEC7FC&width=435&lines=%E2%A0%80%E2%A0%80welcome!%E1%85%A0%E2%99%A1)](https://git.io/typing-svg)
 
-ᅠᅠ⠀ᅠᅠ⠀⠀ᅠᅠᅠ⠀ᅠᅠᅠᅠᅠ⠀⠀⠀⠀![](https://komarev.com/ghpvc/?username=your-github-username&color=EEC7FC)
+ᅠ⠀⠀⠀⠀ ![](https://komarev.com/ghpvc/?username=your-github-username&color=f6deb3) ᅠ⠀
+
+ᅠ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ᅠ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ᅠ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+
+ᅠ⠀⠀⠀⠀⠀⠀⠀⠀ Σ(°△° ꪱꪱꪱ)⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ᅠ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ᅠ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ᅠ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ᅠ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ᅠ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ᅠ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ᅠ⠀⠀⠀⠀⠀⠀ᅠᅠᅠᅠᅠᅠ⠀<img width="400" height="400" alt="tumblr_49e2f0294b4096be09dd6f2e20667c08_32e23d48_250" src="https://github.com/user-attachments/assets/87be03fb-62b9-41c1-ac93-b3c9590b2fca" />
+
 
 ᅠᅠᅠᅠ
 
