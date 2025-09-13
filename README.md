@@ -1,20 +1,7 @@
-<img width="1000" height="1000" alt="tumblr_7c7de2bb88b2ed5a046d29613ee635da_ffb99d0b_400" src="https://github.com/user-attachments/assets/186e2d83-1cda-403a-9483-6312f71ba1e6" />
+![tumblr_20396e551d8e698a5bd8d648cf22cd24_f2bd437e_1280](https://github.com/user-attachments/assets/3f493f33-b241-445c-ade1-8fe44df91429)
 
-ᅠ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+⠀⠀⠀
 
+⠀⠀⠀
 
-
-
-ᅠ⠀⠀⠀⠀ ![](https://komarev.com/ghpvc/?username=your-github-username&color=f6deb3) ᅠ⠀
-
-ᅠ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ᅠ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ᅠ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
-
-ᅠ⠀⠀⠀⠀⠀⠀⠀⠀ Σ(°△° ꪱꪱꪱ)⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ᅠ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ᅠ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ᅠ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ᅠ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ᅠ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ᅠ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ᅠ⠀⠀⠀⠀⠀⠀ᅠᅠᅠᅠᅠᅠ⠀<img width="400" height="400" alt="tumblr_49e2f0294b4096be09dd6f2e20667c08_32e23d48_250" src="https://github.com/user-attachments/assets/87be03fb-62b9-41c1-ac93-b3c9590b2fca" />
-
-
-ᅠᅠᅠᅠ
-
-
-ᅠᅠᅠᅠᅠ
-
-ᅠᅠᅠᅠᅠᅠᅠᅠ
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[atabook](https://sourdeath.atabook.org) ⠀⠀[guns.lol](https://guns.lol/osamiau)
