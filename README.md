@@ -1,15 +1,16 @@
 
-<img width="1045" height="576" alt="tumblr_ddb82352177f90756969956cb9621717_fdcf4bd7_1280" src="https://github.com/user-attachments/assets/1876226b-00a0-4555-9668-c27fa67452cd" />
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="250" height="204" alt="image" src="https://github.com/user-attachments/assets/a9b2f621-cbd3-4c7d-bd1f-8f81ef158e39" />
+
 
 ⠀⠀⠀⠀⠀
 
 ⠀⠀⠀⠀
 
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://komarev.com/ghpvc/?username=your-github-username&color=462a45)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://komarev.com/ghpvc/?username=your-github-username&color=f0f0f0)
 ⠀⠀⠀
 
 
 ⠀⠀⠀
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[atabook](https://sourdeath.atabook.org)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[atabook](https://bribery.atabook.org)
