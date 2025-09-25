@@ -12,14 +12,14 @@
 
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
-⠀⠀![](https://komarev.com/ghpvc/?username=your-github-username&color=cd7f32)
+![](https://komarev.com/ghpvc/?username=your-github-username&color=cd7f32)
 ⠀⠀⠀
 
 
 ⠀⠀⠀
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ 
-⠀⠀[atabook](https://comfylicious.atabook.org)
+[atabook](https://comfylicious.atabook.org)
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
