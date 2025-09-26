@@ -7,9 +7,7 @@
 
 ⠀⠀⠀⠀⠀
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="770" height="350" alt="1758876061" src="https://github.com/user-attachments/assets/b4b930c2-77f6-471c-ad86-63e56bdfbad3" />
-
-
+⠀⠀⠀⠀⠀⠀⠀⠀ᅠᅠᅠ⠀⠀⠀⠀⠀⠀⠀ᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ <img width="770" height="350" alt="1758876061" src="https://github.com/user-attachments/assets/b4b930c2-77f6-471c-ad86-63e56bdfbad3" />
 
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://komarev.com/ghpvc/?username=your-github-username&color=fff9b0)
