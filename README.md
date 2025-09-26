@@ -7,10 +7,11 @@
 
 ⠀⠀⠀⠀⠀
 
-⠀⠀⠀⠀⠀⠀⠀⠀ᅠᅠᅠ⠀⠀⠀⠀⠀⠀⠀ᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ <img width="770" height="350" alt="1758876061" src="https://github.com/user-attachments/assets/b4b930c2-77f6-471c-ad86-63e56bdfbad3" />
+⠀⠀⠀⠀⠀⠀⠀⠀ᅠᅠᅠ⠀⠀⠀⠀⠀⠀⠀ᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ 
 
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://komarev.com/ghpvc/?username=your-github-username&color=fff9b0)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![Static Badge](https://img.shields.io/badge/963%2C377-paws?style=flat&label=paws&color=fff9b0)
+
 ⠀⠀⠀
 
 
