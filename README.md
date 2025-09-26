@@ -10,7 +10,8 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀ᅠᅠᅠ⠀⠀⠀⠀⠀⠀⠀ᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ 
 
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![Static Badge](https://img.shields.io/badge/963%2C377-paws?style=flat&label=paws&color=fff9b0)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![Static Badge](https://img.shields.io/badge/963%2C377-paws?label=paws&color=fff9b0)
+
 
 ⠀⠀⠀
 
