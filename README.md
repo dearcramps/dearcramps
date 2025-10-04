@@ -4,7 +4,7 @@
 
     
 
-![](https://komarev.com/ghpvc/?username=2ft-high&label=(⁠🪽⁠)&color=bfbfbf)           [atabook](https://telarune.atabook.org)
+![](https://komarev.com/ghpvc/?username=2ft-high&label=(⁠🪽⁠)&color=bfbfbf)         [atabook](https://telarune.atabook.org)
 
 [daily](https://arab.org/click-to-help/palestine/)  [click](https://arab.org/click-to-help/palestine/)      [strwpage](https://telarune.straw.page)      [old](https://eyewear.straw.page)  [strw](https://eyewear.straw.page)
 
