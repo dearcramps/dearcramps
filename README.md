@@ -15,7 +15,9 @@
    
    
    
-       ${{\color{turquoise}\{\textsf{please view profile on laptop. . . !!\ \}}}}\$
+       ${{\color{lightblue}\{\textsf{please view profile on laptop. . . !!\ \}}}}\$
+       
+ ${{\color{lightblue}\{\textsf{strwpage is a huge wip. . . go check my other websites !!\ \}}}}\$ 
     
 <img width="1280" height="1280" alt="tumblr_d7457b69640a01a61e0cb828c5c42c67_a406ac1a_1280" src="https://github.com/user-attachments/assets/c5d0f3e1-fc3b-42bb-b6e9-53a33369ad61" />
 
