@@ -1,6 +1,13 @@
-　<p align="center"><img width="400" height="350" alt="tumblr_8b8c7100a191eefaea57a2b6c705b229_9c73592f_250" src="https://github.com/user-attachments/assets/43ffdabb-780f-4c31-8118-9e268b962d03" />
-    
-　<p align="center"> ![IMG_4330](https://github.com/user-attachments/assets/dd44b371-2e92-4170-a523-33c0a2ce53f2)
-![](https://komarev.com/ghpvc/?username=2ft-high&label=(✦)&color=51a895)</p>
-        
+<img align="right" width="500" src="https://github.com/user-attachments/assets/11fb373d-514b-4cd9-ac25-ececc95d0983" />
+
+##             
+
+    
+
+![](https://komarev.com/ghpvc/?username=2ft-high&label=(⁠🪽⁠)&color=bfbfbf)        🐈‍⬛          [atabook](https://telarune.atabook.org)
+
+[daily](https://arab.org/click-to-help/palestine/)  [click](https://arab.org/click-to-help/palestine/)                [strwpage](https://telarune.straw.page)             [old](https://eyewear.straw.page)  [strw](https://eyewear.straw.page)
+<img width="450" height="500" alt="tumblr_229d20844bdf0e97e1fc54a32c7610ee_92207537_500" src="https://github.com/user-attachments/assets/4af9a452-c4c6-4d56-9eff-73ea22bc11cd" />
+
+
 
