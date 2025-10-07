@@ -6,7 +6,7 @@
 
 <p align="center">
   <img src="https://github.com/user-attachments/assets/25773182-ab87-4961-9ad7-cbbe2177f5ca" />
-</p> 
+</p>
 
 　<p align="center">![](https://komarev.com/ghpvc/?username=2ft-high&label=(♡⁠)&color=f2b1cb)
  
