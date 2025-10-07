@@ -10,7 +10,7 @@
 
 　<p align="center">![](https://komarev.com/ghpvc/?username=2ft-high&label=(♡⁠)&color=f2b1cb)
  
- 　<p align="center">✦      [atabook](https://fallenlove.atabook.org)    [daily clicks](https://arab.org/click-to-help/palestine)</p>
+ 　<p align="center">✦      [atabook](https://fallenlove.atabook.org)    [daily click](https://arab.org/click-to-help/palestine)    [prns.page](https://en.pronouns.page/@fairlove)</p>
 
   <p align="center">       
  
